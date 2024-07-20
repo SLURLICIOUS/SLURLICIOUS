@@ -15,4 +15,4 @@ i like:　　.
 
   .
 
-  anyone can int **no dni**
+  **KINDA** anyone can int **little dni**
