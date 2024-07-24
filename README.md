@@ -1,17 +1,16 @@
-**SLUR** 　　**MX**BLK 　　SIX**TEEN** 　　 　　<img src="https://i.postimg.cc/d0chJFy9/36ff3642537b65a2b34eb2f57f513973-removebg-preview-1.png">　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
-. 　　he**him** or none
+**s**lur or **sen**se　  he **it** hym　<img src="https://wilardo.crd.co/assets/images/gallery04/3f835007_original.png?v=ee8a995d">　six**teen** mxblk　　　
 
-.
 
-︵ ྀྀི︵︵◝ 𓂋 ◜︵︵ ྀྀ︵
+<img src="https://i.postimg.cc/PJXTfc12/fill-ezgif-com-webp-to-gif-converter.gif">　
 
-.
+
+
 
 i like:　　.
 
-  **iasip**　**community**　**f1**　race cars　
+  **iasip**　**community**　**f1**　pathologic　
   
-  **halflife**　postal　earlsweatshirt　tylertc
+  **halflife**　postal　the**good**place . . . *& more*
 
   .
 
